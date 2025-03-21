@@ -1,1 +1,2 @@
-Some work from when I were in my art oriented high school, some of it from my recent university classes which were made in hopes of not working in gastronomy/hospitality anymore, please hire me.  
+## Some work from when I were in my art oriented high school, some of it from my recent university classes which were made in hopes of not working in gastronomy/hospitality anymore, please hire me. It's in Polish, might translate it someday. Live, laugh, love game design.
+
